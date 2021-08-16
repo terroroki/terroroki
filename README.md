@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @terroroki
+- 👀 I’m interested in video games 🎮
+- 🌱 I’m currently learning how to script 💻
